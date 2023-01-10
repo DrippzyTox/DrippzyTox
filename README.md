@@ -3,4 +3,8 @@
 - 🌱 I’m currently learning Bass Guitar
 - 💞️ I’m looking to collaborate on Website
 - 📫 How to reach me Discord at Drippzy_Tox#7796
-
+- 👋 I Code for fun and I'm making games with a friend
+- 👀 I cook food
+- 🌱 Im Coding a game currently as a side project with a friend
+- 💞️ I stream on twitch often
+- 📫 Im a cool dude and hope u have fun playing anything i make in the future
