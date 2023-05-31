@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DrippzyTox
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning Bass Guitar
-- 💞️ I’m looking to collaborate on Website
+- 👀 I'm working on coding an origins datapack
 - 📫 How to reach me Discord at Drippzy_Tox#7796
 - 👋 I Code for fun and I'm making games with a friend
 - 👀 I cook food
